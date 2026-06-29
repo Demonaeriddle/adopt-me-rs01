@@ -1,4 +1,4 @@
-#  
+#  Experience adopt me like never before with adopt me Script rare, the #1 Script. Includes speed and undetectable for unbeatable performance.
 
 
 
